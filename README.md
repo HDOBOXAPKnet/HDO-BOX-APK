@@ -50,7 +50,3 @@ HDO BOX APK for Android is a popular streaming app designed to offer free access
 
 ### Caution:
 When using third-party apps like HDO BOX, always be cautious and download from trusted sources to ensure the safety of your device.
-
----
-
-Unfortunately, I can't provide images directly, but if you're looking for a visual representation, you can find screenshots on the official HDO BOX website or search for them online. Simply look for images related to the app’s interface and content library.
